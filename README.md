@@ -1,5 +1,5 @@
 # Rachel Cho
-**Senior/Staff Product Designer** focused on AI-native operational systems, enterprise workflows, and decision-support experiences.
+**Senior Product Designer · AI-native Systems** focused on AI-native operational systems, enterprise workflows, and decision-support experiences.
 
 I design products that help teams reduce ambiguity, surface critical signals, and operate effectively under pressure.
 
